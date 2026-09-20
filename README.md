@@ -1,0 +1,1 @@
+# Frido_home_appliances_analysis
